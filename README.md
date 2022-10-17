@@ -1,0 +1,2 @@
+# iyg-resolusi
+iyang gumilarrrrrrr
